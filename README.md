@@ -1,3 +1,3 @@
 # Manish-Bishnoi
 This is my Repository
-Author - Manish Bishnoi
+Author - Manish Bishnoi (Mangi)
